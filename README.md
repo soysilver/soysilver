@@ -1,6 +1,6 @@
-## Hi there 👋
+## (｡ŏ﹏ŏ)
 
-(｡ŏ﹏ŏ)
+
 
 <!--
 **soysilver/soysilver** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
